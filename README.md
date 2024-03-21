@@ -1,1 +1,1 @@
-![parthgitreadme](https://github.com/parth-ranjan-pandey/parth-ranjan-pandey/assets/117584477/be9f4a81-b1ad-44ee-ac61-039ec8fe2ca3)
+![parth git readme](https://github.com/parth-ranjan-pandey/parth-ranjan-pandey/assets/117584477/14e7c80f-60e8-4307-a71a-12a731ae4a9b)
